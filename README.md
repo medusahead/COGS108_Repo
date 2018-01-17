@@ -1,1 +1,1 @@
-# COGS108_Repo
+# A revolution is an idea which has found its bayonets. - Napoleon Bonaparte
